@@ -4,3 +4,8 @@ Er wurde 1961 in Kentucky als Sohn von Nicholas Joseph „Nick“ Clooney und Ni
 Er war von 1989 bis 1993 mit der Schauspielerin Talia Balsam verheiratet und zwischen 2004 und 2013 mit den Schauspielerinnen Krista Allen, Elisabetta Canalis[2] und Stacy Keibler liiert.[3] In jungen Jahren war er einige Zeit mit Dedee Pfeiffer liiert.[4]
 
 Im April 2014 verlobte er sich mit der britisch-libanesischen Juristin und Menschenrechtsanwältin Amal Alamuddin. Im September 2014 heiratete das Paar in Venedig.[5][6] Clooneys Ehefrau nahm seinen Nachnamen an. Im Juni 2017 bekamen sie Zwillinge.[7] 
+## Charakter
+* lieb
+* treu
+* smart
+ * clever
