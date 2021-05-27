@@ -14,5 +14,4 @@ As Grace Hopper said:
 > I’ve always been more interested
 > in the future than in the past.
 
-<img src="https://de.wikipedia.org/wiki/George_Clooney#/media/Datei:George_Clooney_2016.jpg
-"/>
+<img src="https://de.wikipedia.org/wiki/George_Clooney#/media/Datei:George_Clooney_2016.jpg"/>
